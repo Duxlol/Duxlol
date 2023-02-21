@@ -1,4 +1,4 @@
-### Hi there 👋
+### Big stuff coming soon.
 
 <!--
 **Duxlol/Duxlol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
